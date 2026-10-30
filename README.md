@@ -1,1 +1,1 @@
-# spidery-sorcery
+Zanim kupisz skrzynkę na przesyłki, zerknij, co znalazłem tutaj: https://prooffeed.com/pl/skrzynek-na-paczki-do-domu. Moje wnioski po porównaniu. Masz płot? Bierz Paczkoport L-2W, bo kurier wrzuca od ulicy, a Ty odbierasz od strony ogrodu, a siłownik gazowy łagodzi opadanie klapy przy cięższych paczkach. Cena od około 1020 zł. Nie masz ogrodzenia? Paczkoport S-1N postawisz gdziekolwiek, w kostce lub w gruncie. Budżet i niechęć do rdzy? Keter Parcel Box, w sklepach bywa też pod marką Curver, a kłódkę dokładasz własną.# spidery-sorcery
